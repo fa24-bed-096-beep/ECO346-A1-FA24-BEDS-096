@@ -1,1 +1,1 @@
-# ECO346 Assignment 1 - FA24-BED-096
+# ECO346 Assignment 1 - FA24-BEDS-096
